@@ -1,1 +1,1 @@
-Revelacion is an amazing EP!
+Revelacion is an amazing EP by Selena Gomez!
