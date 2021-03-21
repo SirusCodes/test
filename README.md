@@ -1,1 +1,1 @@
-Darshan is G.O.A.T.
+Revelacion is an amazing EP!
