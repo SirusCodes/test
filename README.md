@@ -1,1 +1,1 @@
-MAD Club is G.O.A.T.
+This is a session
